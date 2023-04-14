@@ -7,8 +7,6 @@ Nous proposons des chambres privées et des dortoirs. Certains logements compren
 
 Tous donnent accès au jardin et aux salles de bains communes. L'établissement possède une cuisine commune. 
 
-Vous pourrez pratiquer diverses activités dans les environs, notamment la randonnée et le vélo. 
-
-**Goclands** se trouve à 1,9 km du cours Mirabeau et à 1,3 km de la grande école Sciences Po Aix.
+Vous pourrez pratiquer diverses activités dans les environs, notamment la randonnée et le vélo. **Goclands** se trouve à 1,9 km du cours Mirabeau et à 1,3 km de la grande école Sciences Po Aix.
 
 L'aéroport de Marseille-Provence est situé à 21 km de **Goclands**.
