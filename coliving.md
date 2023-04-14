@@ -12,5 +12,3 @@ Vous pourrez pratiquer diverses activités dans les environs, notamment la rando
 **Goclands** se trouve à 1,9 km du cours Mirabeau et à 1,3 km de la grande école Sciences Po Aix.
 
 L'aéroport de Marseille-Provence est situé à 21 km de **Goclands**.
-
-![Photo de Goclands Aix](https://raw.githubusercontent.com/goclands/test-website-repo-3796/main/images/goclands-aix.jpg)
